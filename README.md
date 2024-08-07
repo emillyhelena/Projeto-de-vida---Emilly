@@ -1,1 +1,1 @@
-# Projeto-de-vida---Emilly
+# Projeto-de-vida---Emilly e Izadorah
